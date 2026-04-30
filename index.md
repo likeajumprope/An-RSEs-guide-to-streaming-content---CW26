@@ -92,10 +92,10 @@ The internet is full of trolls. One fear that you might have is that they gather
 
 **Time commitment**
 
-** Fear of being identifiable (face in stream) **
+**Fear of being identifiable (face in stream) **
     - Solution: avatar, voice-only  
   
-** Perfectionism / performance pressure**  
+**Perfectionism / performance pressure**  
     - Solution: just get started  
       
 
